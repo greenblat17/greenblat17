@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 - 🤖 I’m Alexander Zhuravlev
-- 🧑‍💻 Software Engineer | @nexign
+- 🧑‍💻 Software Engineer | Nexign
 - 👨‍🎓 CS Student | ETU
 - 💬 contact [@greenblat](https://t.me/greenblat) 
 
