@@ -1,6 +1,3 @@
-
-"My reward, my purpose, my life, is the work itself – my work done my way! Nothing else matters to me!"
-
 > My reward, my purpose, my life, is the work itself – my work done my way! Nothing else matters to me!  
 >
 > *– Howard Roark*
